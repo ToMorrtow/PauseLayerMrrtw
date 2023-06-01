@@ -1,6 +1,4 @@
 # PauseLayerMrrtw
-Este mod está hecho por: ToMorritw
-xd
+Este mod está hecho por: ToMorritw (w)
 
-BetterTester: elSai, Jorgame, Namix y ElGenioDelQueso
-w
+El mod está 100% spanish
